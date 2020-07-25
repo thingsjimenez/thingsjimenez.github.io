@@ -1,1 +1,0 @@
-# thingsjimenez.github.io
